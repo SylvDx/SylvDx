@@ -3,8 +3,8 @@ THE alex g enthusiast
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="635" height="947" alt="2026_03_07_0gp_Kleki" src="https://github.com/user-attachments/assets/7be064d9-30c5-4b8f-9117-199721a73c25" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/cf5c2237-4c62-46d5-be1d-25a5a5bf9c68" />
 
-yes thats my art,
+
 
 
