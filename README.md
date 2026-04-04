@@ -1,9 +1,10 @@
-THE alex g enthusiast
 
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/cf5c2237-4c62-46d5-be1d-25a5a5bf9c68" />
+
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1199" height="674" alt="image" src="https://github.com/user-attachments/assets/858805cb-8c67-4c5a-8bd3-2cf07fb4829f" />
+
 
 
 
