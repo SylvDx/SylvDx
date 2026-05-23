@@ -3,8 +3,9 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1199" height="674" alt="image" src="https://github.com/user-attachments/assets/858805cb-8c67-4c5a-8bd3-2cf07fb4829f" />
-                                      me when im neil, me??????????????
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="1111" height="689" alt="image" src="https://github.com/user-attachments/assets/d7c1c56a-89a4-4bc8-ad5e-91e1b67619af" />
+
+                                     
 
 
 
